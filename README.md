@@ -1,15 +1,12 @@
-## Hi there 👋
-
-
-**ARLEQUINADA17/ARLEQUINADa17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...nathally.moraes.lopes@escola.pr.gov.br- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## BOAS VINDAS AO MEU PERFIL❤️
+- Me chamo NÁTHALLY
+- Só legual com quem eu quero
+- SOlteira kkkkk
+- Amo comer
+- Tenho varios amigos
+- Amo viajar
+- Amo jogar 
+- AMO o vh 🫀
+- Amo minha familia
+- DEUS È meu pastor nada me faltaras
+- Sou LIBRIANA ♎
